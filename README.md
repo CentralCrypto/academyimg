@@ -1,1 +1,0 @@
-# CentralCrypto Academy Images
